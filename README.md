@@ -1,0 +1,2 @@
+# yaland-nya
+bilgidünyası
